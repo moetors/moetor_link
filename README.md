@@ -1,5 +1,5 @@
-## 萌通加速官网最新地址
+## 萌通加速永久地址发布页
 
-[https://moetor.io](https://moetor.io)
+[https://萌通.com](https://萌通.com)
 
 客服邮箱:admin@moetor.io
